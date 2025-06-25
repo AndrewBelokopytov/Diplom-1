@@ -1,1 +1,1 @@
-[Тест-план .docx](..%2F..%2FDocuments%2F%D0%A2%D0%B5%D1%81%D1%82-%D0%BF%D0%BB%D0%B0%D0%BD%20.docx)
+[Тест-план .docx](https://github.com/user-attachments/files/20896708/-.docx)
